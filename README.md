@@ -13,4 +13,5 @@
 
 下面题目到导师首行缩进1.11厘米
 
-![image](https://github.com/noisy66/fdzc_mb/assets/114157124/dd112a7a-3eab-46b1-9f2c-b3a058894d22)
+![maibpmwe](https://github.com/noisy66/fdzc_mb/assets/114157124/a04e32a6-a92f-44b9-b39d-956619b1e501)
+
